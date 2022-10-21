@@ -1,0 +1,1 @@
+# Aula-Pensamrnto-Computacional10
